@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [LINXINYU]
+# 👋 Hi, I'm [lin-xinyu180]
 
 🚀 I'm from Taiwan  
 💻 I'm interested in KPOP and computer game  
